@@ -25,6 +25,4 @@
 
 ---
 
-> "Everything is the choice of Steins;Gate."
-
 </div>
